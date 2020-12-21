@@ -3,6 +3,6 @@
 
 
 ## How do we get a growth mindset, these are three examples:
-- We constantly read new things :books:
-- We change our Lifestyle :hearts:
-- Work activities continuously  :surfer:
+- We constantly read new things :+1:
+- We change our Lifestyle :+1:
+- Work activities continuously :+1:
